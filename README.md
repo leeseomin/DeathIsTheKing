@@ -23,8 +23,12 @@
 
 
 
+<br/><br/>
+<br/><br/>
 
-
+ ### You can purchase these artworks from the following NFT marketplace 
+ 
+ https://rarible.com/leeseomin
 
 <br/><br/>
 <br/><br/>
