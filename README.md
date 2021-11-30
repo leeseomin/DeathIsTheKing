@@ -21,9 +21,6 @@ https://rarible.com/token/0xd07dc4262bcdbf85190c01c996b4c06a461d2430:737369?tab=
 
 
 
-https://user-images.githubusercontent.com/86279699/143971114-8b70566c-de28-44fb-8849-df355f47bc9e.mov
-
-
 
 
 
