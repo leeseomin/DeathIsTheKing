@@ -6,6 +6,7 @@
 ### Death is the king of this world #001
 
  <img src="https://github.com/leeseomin/DeathIsTheKing/blob/main/ART/death1.png" width="2000">
+https://rarible.com/token/0xd07dc4262bcdbf85190c01c996b4c06a461d2430:737369?tab=owners
  <br/><br/> 
 
 ### Death is the king of this world #002
